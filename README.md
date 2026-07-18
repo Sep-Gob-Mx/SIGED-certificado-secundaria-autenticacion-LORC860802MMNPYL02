@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LORC860802MMNPYL02
+LORC860802MMNPYL02
